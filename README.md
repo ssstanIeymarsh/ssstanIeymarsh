@@ -1,1 +1,5 @@
-<img src="https://github.com/user-attachments/assets/93319f95-d623-4280-ad24-65be4698a8b0" />
+<img src="https://github.com/user-attachments/assets/d2835c8e-7d36-45fa-a126-f654826f131f" />
+
+<p align="center"
+
+<sub>yeah [@horroryaoi](https://github.com/horroryaoi)</sub>
